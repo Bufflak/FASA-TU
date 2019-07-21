@@ -1,3 +1,3 @@
 FASA Textures Unlimited Recolor
 
-![Imgur Image](http://https://i.imgur.com/mtopC1c.png)
+![Imgur](http://https://i.imgur.com/mtopC1c.png)
